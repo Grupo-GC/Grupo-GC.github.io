@@ -1,3 +1,0 @@
-Equipo GC
-
-Integradora
